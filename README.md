@@ -12,13 +12,13 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://dy1-09.pages.dev/">抖音成人版</a>
+点击访问：<a href="https://dy1-09.pages.dev/">第一抖音成人版</a>
 
 点击访问：<a href="https://dy2-09.pages.dev/">91抖音成年版官网</a>
 
 点击访问：<a href="https://dy3-09.pages.dev/">抖音成人版抖音</a>
 
-点击访问：<a href="https://dy4-09.pages.dev/">抖音成年版</a>
+点击访问：<a href="https://dy4-09.pages.dev/">最好抖音成年版</a>
 
 点击访问：<a href="https://dy5-09.pages.dev/">抖音成年版</a>
 
